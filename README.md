@@ -1,6 +1,6 @@
 -[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=30&pause=1000&color=F71111&random=false&width=435&lines=%F0%9D%99%B7%F0%9D%99%B8+%F0%9D%9A%83%F0%9D%99%B7%F0%9D%99%B4%F0%9D%9A%81%F0%9D%99%B4+%F0%9F%91%8B)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=40&pause=1000&color=A8FF4E&background=FF111100&random=false&width=435&lines=Mr.JOKER+TERMUX+COMMUNITY+)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=40&pause=1000&color=61F77E&random=false&width=435&lines=Hasib+Hossen)](https://git.io/typing-svg)
 
 ## 𝚂𝙾𝙲𝙸𝙰𝙻 𝙻𝙸𝙽𝙺 :
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/100093466325198) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/@saik.o9258) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://www.youtube.com/@SAIKO_KILLER-sj1qg) 
